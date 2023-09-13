@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **wankhedevarshu@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/182imqXMD4s5VrgAcIghZFKUOQmuAWJ4v/view?usp=sharing](https://drive.google.com/file/d/182imqXMD4s5VrgAcIghZFKUOQmuAWJ4v/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gJbUJUvjg6if2AeiTZzXO2awDBTAYTDo/view?usp=drive_link]
 
 - ⚡ Fun fact **I think I am Funny**
 
