@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Wankhedevarshu](https://github.com/Wankhedevarshu)
 
-- 💬 Ask me about **HTML , CSS , JAVASCRIPT ,NODEJS , REACTJS , EXPRESSJSJS**
+- 💬 Ask me about **HTML , CSS , JAVASCRIPT ,NODEJS , REACTJS , EXPRESSJS, MongoDB**
 
 - 📫 How to reach me **wankhedevarshu@gmail.com**
 
